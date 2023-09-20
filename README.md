@@ -3,4 +3,4 @@
 - Rony Mari.
 - Salusso Mauricio.
 - Muñoz Ludmila.
-- Palladini Nahuel.
+- Palladini Nahuel. 24 años, Buenos Aires
