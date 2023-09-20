@@ -3,4 +3,4 @@
 - Rony Mari.
 - Salusso Mauricio: 18, Buenos Aires
 - Muñoz Ludmila: 23 años, Buenos Aires
-- Palladini Nahuel.
+- Palladini Nahuel. 24 años, Buenos Aires
